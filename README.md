@@ -1,1 +1,1 @@
-Selected works of Lou DiVizio featuring broadcast and multimedia projects that demonstrate original storytelling, hands-on editorial production, production-crew supervision and logistics. Each project identifies Lou's specific role.
+Selected works of Lou DiVizio featuring broadcast and multimedia projects, demonstrating original storytelling, editorial production, production-crew supervision and logistics.
